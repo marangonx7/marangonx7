@@ -9,9 +9,8 @@
 - Estou me desenvolvendo na linguagem JavaScript
 
 
-### entra em contato comigo via GMAIL📫
+### entra em contato comigo📫
 
 000011107328214SP@al.educacao.sp.gov.br
 @marangonx7
-![_](https://media1.tenor.com/m/z8Z8oNWzSAgAAAAd/desconfiado-doguinho.gif
-)
+![](https://media.tenor.com/V0L5loU4p1cAAAAM/heart.gif)
